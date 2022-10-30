@@ -4,3 +4,5 @@ ___________________
 
 8/30/22 -- I ALSO PUT IT TO WHERE YOU HAVEIT IN YOUR PURCHASES IN THE SETTINGS
 ___________________
+
+10/30/22 -- aahha i made it to where its alot faster about 3 mins to startup and there is limits to it the max robux is 11k :(
